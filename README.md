@@ -1,2 +1,0 @@
-# datorika-first-repo
-.......dsfs
